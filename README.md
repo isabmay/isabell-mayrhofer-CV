@@ -101,7 +101,7 @@ SAE Institute / Oxford Brookes University – Munich
 
 **Languages**  
 🇩🇪 German (Native)  
-🇬🇧 English (C1)  
+🇬🇧 English (C2)  
 🇫🇷 French (Basic)
 
 ---
